@@ -1,4 +1,4 @@
-#  
+#  Experience death ball like never before with death ball Script rare, the #1 Script. Includes auto-collect and undetectable for unbeatable performance.
 
 
 
